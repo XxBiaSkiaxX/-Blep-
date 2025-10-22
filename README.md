@@ -15,4 +15,4 @@
 
 ✦     ♡⊱༻☾┊❝SMALL NOTE(s) If afk; c+h! Don't spam whisper me though <3     ♡      If I am with oomfs, then I'm more content- I guess haha❞┊☽༺༅⊱♡     ✦
 
-![Visitor Count](https : //profile-counter.glitch.me/{YOUR USER}/count.svg)
+![VisitorCount](https://profile-counter.glitch.me/{XxBiaSkiaxX}/count.svg)
