@@ -16,3 +16,4 @@
 ✦     ♡⊱༻☾┊❝SMALL NOTE(s) If afk; c+h! Don't spam whisper me though <3     ♡      If I am with oomfs, then I'm more content- I guess haha❞┊☽༺༅⊱♡     ✦
 
 ![VisitorCount](https://profile-counter.glitch.me/{XxBiaSkiaxX}/count.svg)
+https://www.twitch.tv/xxthatoneaussielesbianxx Make sure to read Chat Rules, thank you so much if you follow me! <3
