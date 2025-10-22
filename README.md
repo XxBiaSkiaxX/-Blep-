@@ -13,6 +13,6 @@
 
 ✦┊❝Hope y'all are having a great day/night! If you ever want to chill and hang out, you can come cuddle! :D❞
 
-✦     ♡⊱༻☾┊❝SMALL NOTE(s) If afk; c+h! Don't spam whisper me though <3     ♡      If I am with oomfs, then I'm more content- I guess haha❞┊☽༺༅⊱♡     ✦
+-# ✦     ♡⊱༻☾┊❝SMALL NOTE(s) If afk; c+h! Don't spam whisper me though <3     ♡      If I am with oomfs, then I'm more content- I guess haha❞┊☽༺༅⊱♡     ✦
 
-# *https://www.twitch.tv/xxthatoneaussielesbianxx Make sure to read Chat Rules, thank you so much if you follow me! <3*
+### *https://www.twitch.tv/xxthatoneaussielesbianxx Make sure to read Chat Rules, thank you so much if you follow me! <3*
